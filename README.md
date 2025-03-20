@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">📍Based in: Latina,IT<br>🎯 Goals: Atm Graduate<br>🚀 Intrested by: Physics, Art, Fashion, Cinema, Music<br>⚽ Sport: Gym, Padel</p>
+<p align="left">📍Based in: Latina,IT<br>🎯 Goals: Atm Graduate<br>🚀 Intrested by: Physics, Art, Fashion, Cinema, Music<br>⚽ Sport: Gym, Beach volley</p>
 
 ###
 
